@@ -1,4 +1,13 @@
 <h1 align="center">Hi Guys👋, I'm Bruce 🥷</h1>
+
+🔭 I’m currently working as a freelancer,open source contributor.I'm also a web Dev
+
+🥂👨🏽‍💻 I’m looking to collaborate on all open source project especially Blockchain and crypto projects
+
+🌱 I’m currently learning how become The best African Dev👨🏽‍💻
+
+💬Ask me anything about code,SEO and developers, I'm open to all kind of discussions
+
 <h3 align="center">A cool guy from West Africa 🇧🇯🇳🇬🇨🇮🇬🇭</h3>
 
 - 📫 How to reach me **alvaroakpovo@gmail.com**
