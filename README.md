@@ -8,6 +8,8 @@
 
 💬Ask me anything about code,SEO and developers, I'm open to all kind of discussions
 
+⚡️Anedocte I am a video game addict🎮
+
 <h3 align="center">A cool guy from West Africa 🇧🇯🇳🇬🇨🇮🇬🇭</h3>
 
 - 📫 How to reach me **alvaroakpovo@gmail.com**
